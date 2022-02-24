@@ -1,1 +1,0 @@
-Developer Portfolio - https://gillguimaraes.netlify.app
